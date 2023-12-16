@@ -15,3 +15,19 @@ visit our channel for a demo: https://www.youtube.com/@Pyresearch/videos
 👨‍🌾👩‍🔬 Don't miss your chance to be part of this green-tech revolution! 🌿💡 #AgriTechInnovation #PyResearchProject #LeafDiseasePredictor
 
 🌟 Join us in creating a healthier future for our orchards! 🍃💚
+
+
+### Watch the demo and click the image 
+
+[![Watch the video](https://github.com/noorkhokhar99/Apple-Leaf-Disease-Predictor/blob/main/WhatsApp%20Image%202023-12-16%20at%2012.42.32%20AM.jpeg)](https://www.youtube.com/watch?v=jJmyfiyNv04)
+
+
+### Watch the demo click the image 
+
+[![Watch the video](https://github.com/noorkhokhar99/Apple-Leaf-Disease-Predictor/blob/main/WhatsApp%20Image%202023-12-16%20at%2012.42.33%20AM.jpeg)](https://www.youtube.com/watch?v=jJmyfiyNv04)
+
+
+### Watch the demo click the image 
+
+[![Watch the video](https://github.com/noorkhokhar99/Apple-Leaf-Disease-Predictor/blob/main/WhatsApp%20Image%202023-12-16%20at%2012.42.31%20AM.jpeg)](https://www.youtube.com/watch?v=jJmyfiyNv04)
+
